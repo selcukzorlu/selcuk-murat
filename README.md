@@ -1,2 +1,0 @@
-# selcuk-murat
-selcuk-murat
